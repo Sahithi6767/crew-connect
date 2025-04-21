@@ -60,11 +60,11 @@ Crew-connect utilizes a range of technologies to provide a seamless user experie
 
 Thank you for your interest in Crew-connect! we hope this platform enriches the filmmaking experience for both professionals and aspiring talents. For any questions or suggestions, don't hesitate to reach out.
 
-*Victor Ukpe*
+*Sahithi*
 
-[LinkedIn](https://www.linkedin.com/in/victor-ukpe-726475177/)
+[LinkedIn](https://l1nk.dev/Sahithi-Anugu)
 
-[Email](mailto:viukpe@gmail.com)
+[Email](anugusahithi26@gmail.com)
 
 
 
